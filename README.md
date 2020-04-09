@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+Little Bo-Peep has lost her sheep,
+And can't tell where to find them;
+Leave them alone, and they'll come home,
+Bringing their tails behind them.
